@@ -42,7 +42,7 @@
 
 ## Tester Bot
 * Jika kamu menemukan bug jangan lupa buka Issues
-* Info Lebih Lanjut, Chat [Owner-YukiBot](https://wa.me/6288279268363)
+* Info Lebih Lanjut, Chat [Owner-RIZZ-XD](https://wa.me/6289508998484)
 
 ## How To Change Menu Display
 ----
